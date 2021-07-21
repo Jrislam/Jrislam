@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Jrislam
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Jrislam/Jrislam is a ✨ special ✨ repository because its `README.md` (this file) appears on your 1xbet 
+Gaming id_287098095 
+profile.
+You can click the Preview link to take a look at your changes.
+--->
+Authenticator cord
